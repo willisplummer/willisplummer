@@ -1,5 +1,5 @@
-- 👋 i'm @willisplummer
-- 💞️ down to collaborate on 2d games
-- 🌊 Open to freelance gigs 
+- 👋 i'm willis
+- 🏄‍♂️ down to collaborate on 2d games
+- 🌊 hmu 4 freelance gigs 
 - 🥋 willisplummer.com
-- 📫 inbox me: willisplummer@gmail.com
+- 📫 willisplummer@gmail.com
